@@ -11,7 +11,7 @@
 
 📚 I’m currently learning everything.
 
-📌 Meta 2024: Criar novos projetos e encontrar um emprego.
+📌 Meta 2024: Criar novos projetos e me recolocar no mercado de trabalho.
 
  
 
