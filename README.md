@@ -9,7 +9,7 @@
 
 📍 Manaus - AM.
 
-📚 I’m currently learning everything.
+📚 Atualmente estou aprendendo tudo.
 
 📌 Meta 2024: Criar novos projetos e me recolocar no mercado de trabalho.
 
